@@ -1,7 +1,7 @@
 # 𝑨𝑩𝑶𝑼𝑻 𝑶𝑪 𝑿 𝑪𝑨𝑵𝑶𝑵
 
 <p align="center">
-  <img src="OcXCanon𐔌𐦯_202102894707.png" width="200">
+  <img src="ʳ⠀ 🪹 𖨂𓄹 ⠀⠀ 🇵𝓃𝗀⠀ ▣ ⠀⠀∶   𝗏𝗈𝗎𝗋𝗆𝖾𝗓𝗓.jpeg" width="200">
 </p>
 
 !!! 
