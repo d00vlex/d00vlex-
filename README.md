@@ -1,5 +1,5 @@
 # d00vlex
 
 <p align="center">
-  <img src="https://github.com" width="200" style="border-radius: 50%;">
+  <img src="Screenshot_20261028_192818_CapCut.png" width="200">
 </p>
