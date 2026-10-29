@@ -1,4 +1,5 @@
-<p align="center">
-  <img src="ʳ⠀ 🪹 𖨂𓄹 ⠀⠀ 🇵𝓃𝗀⠀ ▣ ⠀⠀∶ 𝗏𝗈𝗎𝗋𝗆𝖾𝗓𝗓.jpg" width="200">
-</p>
+# d00vlex
 
+<p align="center">
+  <img src="https://github.com" width="200" style="border-radius: 50%;">
+</p>
